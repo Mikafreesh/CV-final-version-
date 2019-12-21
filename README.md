@@ -1,2 +1,2 @@
 # CV-final-version-
-CV personnel - Quekques modifications sont en cours 
+CV personnel - Quelque modifs sont encore en cours
